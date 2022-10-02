@@ -4,3 +4,4 @@ Welcome!
 ANKIT KUMAR YADAV
 ankityadav1852@gmail.com
 Soumili @sequin_lush
+Kartik Batra  @KartikB92363724 (twitter)
